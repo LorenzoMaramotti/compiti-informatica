@@ -1,1 +1,1 @@
-# compiti-informatica
+# compiti di informatica assegnati
